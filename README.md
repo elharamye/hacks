@@ -1,1 +1,5 @@
-# hacks
+# TOOLS CREATED BY ME
+
+Here are some hacking tools created by me
+
+REMEMBER: DO NOT USE THIS WITHOUT PERMISSION OF THE VICTIM
